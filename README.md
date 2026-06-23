@@ -1,2 +1,2 @@
 # meragharscheme.pk
-Owning a home remains one of the biggest financial goals for families across Pakistan. However, rising property prices and high financing costs often make homeownership difficult for low and middle-income households. To address this challenge, the Government of Pakistan, in collaboration with the State Bank of Pakistan (SBP), continues to support
+Owning a home remains one of the biggest financial goals for families across Pakistan. However, rising property prices and high financing costs often make homeownership difficult for low and middle-income households. To address this challenge, the Government of Pakistan, in collaboration with the [State Bank of Pakistan]((https://meragharscheme.pk/)) (SBP), continues to support
